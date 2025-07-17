@@ -1,1 +1,2 @@
-# Econom-as-del-sudeste-asi-tico-crecimiento-y-desaf-os-en-2024
+# Econom-as-del-sudeste-asiático-crecimiento-y-desaf-os-en-2024
+La región del sudeste asiático experimentó un crecimiento mixto en 2024. Vietnam y Singapur fueron los principales impulsores con un crecimiento destacado del 7.4% y 5.4%, respectivamente. Sin embargo, Indonesia y Filipinas enfrentaron desaceleraciones. Las exportaciones y las inversiones extranjeras continúan siendo factores cruciales.
